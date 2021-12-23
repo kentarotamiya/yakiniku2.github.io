@@ -1,0 +1,1 @@
+# yakiniku2.github.io
